@@ -8,3 +8,4 @@ In 1550 >, two vocal groups
 Both of the groups had romantic relationships with the [[Patrons]] 
 	Wives were for procreation and singers for pleasure
 
+

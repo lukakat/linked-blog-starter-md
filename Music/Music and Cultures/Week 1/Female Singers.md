@@ -8,3 +8,4 @@
 	- The singers were ladies in waiting of noble women. 
 	- Were very well educated 
 - Sexual stigma followed through the court singers. 
+
