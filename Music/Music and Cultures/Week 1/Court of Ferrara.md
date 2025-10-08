@@ -8,4 +8,7 @@ In 1550 >, two vocal groups
 Both of the groups had romantic relationships with the [[Patrons]] 
 	Wives were for procreation and singers for pleasure
 
+The [[Concerto delle Donne]] in the court were [[Laura Pevarera]], [[Liivia d'Arco]], [[Anna Guarini]],[[Tarquinia Molza]]
+Married off to husbands to legitimise their presence at court
+Very good at improvisation and sight reading
 
