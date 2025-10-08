@@ -1,0 +1,1 @@
+There are 5 categories of things which all relate to each other, those being the [[Elements]], [[Qualities]], [[Organs]], [[Humors]] and [[Temperaments]]
