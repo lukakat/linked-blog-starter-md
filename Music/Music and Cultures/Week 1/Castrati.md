@@ -7,3 +7,7 @@
 - First public appearance in 1650's in Venice
 	- Played young androgynous heros
 - In Rome only played female roles 
+
+As Sexual Partners
+- Elite men used them as they were below in the [[Hierarchy]].
+- So they were sub to the [[Patrons]].
