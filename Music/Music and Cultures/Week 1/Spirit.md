@@ -1,0 +1,1 @@
+The [[Spirit]] is the semi permeable substance in the body which carries the immaterial [[Soul]].
