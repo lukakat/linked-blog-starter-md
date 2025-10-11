@@ -9,4 +9,12 @@ need to include:
 1. Primary sources 
 2. The structure 
 3. Lots of signposting 
-4. 
+
+do not define words concretely 
+more about ideas and concepts than words definitions 
+use the [Grove Music](https://www.oxfordmusiconline.com/grovemusic) dictionary not the oxford one
+
+ draw in 
+ thesis 
+ organisation 
+findings and further layout
