@@ -1,0 +1,1 @@
+Sections in semiquavers that have rapid emotional text

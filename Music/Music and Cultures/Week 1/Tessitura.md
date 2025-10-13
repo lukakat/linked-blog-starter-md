@@ -1,0 +1,1 @@
+Another word for range, usually used in the vocal sense
