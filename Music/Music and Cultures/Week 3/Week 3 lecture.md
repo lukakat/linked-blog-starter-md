@@ -49,3 +49,13 @@ Affektenlehre
 "the doctrine of the affections"
 "theory of the affects"
 active and passive emotions which are positive and negative 
+
+Seminar week 3 
+three styles of late baroque vocal music:
+recitative 
+[[Recitativo Accompagnato]] 
+aria 
+
+recitative comes before aria 
+
+[[Forte, e lieta]]
