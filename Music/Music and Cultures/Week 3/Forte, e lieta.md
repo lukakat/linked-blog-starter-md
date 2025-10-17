@@ -17,3 +17,6 @@ Section B needs to end in original key to go back to da capo (seciton a)
 A section into B section is unprepared and not handled well to show conflict and sudden change 
 
 expected in essays to compare to the john walter hills structure
+
+harvard style referencing 
+
