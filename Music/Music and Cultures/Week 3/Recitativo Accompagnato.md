@@ -1,1 +1,1 @@
-An recitative with more instruments than basso continuo
+A recitative with more instruments than just basso continuo
