@@ -1,0 +1,1 @@
+Repeating a set form with subtle variations each time 

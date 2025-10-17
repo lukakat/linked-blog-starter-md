@@ -30,10 +30,10 @@ three styles of late baroque vocal music:
 [[Recitativo Accompagnato]] 
 [[Aria]]
 
-also have 
+There also is
 [[Arioso]] which is not the same as an [[Aria]]
 
 
-recitative comes before aria 
+[[Recitative]] comes before aria 
 
 [[Forte, e lieta]]

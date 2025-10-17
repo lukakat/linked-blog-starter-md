@@ -1,0 +1,1 @@
+Musical spectacle performed between acts (usually 5) of a play in 1500s Italian courts
