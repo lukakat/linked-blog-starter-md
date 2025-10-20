@@ -6,3 +6,5 @@ at what point in music does a secondary source become a primary source
 need to preface the outdated methodology you see pre 1980's
 
 pdf marking and annotation 
+
+Not summarising the content of the article but the whole structure
