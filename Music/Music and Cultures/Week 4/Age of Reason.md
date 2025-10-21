@@ -1,0 +1,1 @@
+Scientific revolution and pursuit of objective truth through medicine and other sciences
