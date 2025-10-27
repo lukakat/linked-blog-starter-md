@@ -1,0 +1,1 @@
+Is similar to sharpening a note 

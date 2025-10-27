@@ -1,0 +1,1 @@
+Syllables representing drum strokes

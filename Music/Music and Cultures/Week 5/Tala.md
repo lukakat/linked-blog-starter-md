@@ -1,0 +1,1 @@
+Rhythmic cycle that can have a different number of beats

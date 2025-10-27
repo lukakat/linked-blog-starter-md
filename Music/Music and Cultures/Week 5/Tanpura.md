@@ -1,0 +1,1 @@
+Plucked lute instrument that plays the [[Drone]]
