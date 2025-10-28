@@ -83,7 +83,4 @@ Takes many years to master the expression of raga and bring out the mood of the 
 Manifest the affect in the audience through slowly building the mood through performance
 Moods manifested in music
 
-listen to the indian classical music 
-
-
 
