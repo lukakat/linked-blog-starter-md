@@ -1,0 +1,1 @@
+get ideas for final piece ready to discuss next week 
