@@ -17,3 +17,6 @@ Upper levels of church hierarchy had political power, and were most of the time 
 [[Regular clergy]]
 
 ![[Screenshot 2025-11-17 at 14.40.53.png]]
+
+[[Hildegard of Bingen]]
+[[Medieval Music Education]]
