@@ -1,4 +1,4 @@
-do the essay first
+Do the essay first
 250 for both the intro and conclusion
 leaves 1500 for 3 topics 
 500 for each topic
