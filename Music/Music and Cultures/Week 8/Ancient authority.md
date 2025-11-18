@@ -1,0 +1,1 @@
+Respect for sacred texts and classical Greek and Roman writers 

@@ -1,0 +1,1 @@
+The bars between the notes that go vertically 

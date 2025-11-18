@@ -1,0 +1,1 @@
+Critical explanation or interpretation of scripture

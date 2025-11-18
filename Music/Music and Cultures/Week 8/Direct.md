@@ -1,0 +1,1 @@
+Everyone sings the same thing
