@@ -16,4 +16,3 @@ If not brief (more than 3 lines), give own paragraph and indent from text with q
 3rd one is good 
 ![[Screenshot 2025-11-21 at 14.40.13.png]]
 When quoting from someone whos cited another person, just site the person writing the thing you're reading
-
