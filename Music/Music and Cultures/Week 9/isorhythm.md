@@ -1,0 +1,1 @@
+[[talea]] is repeated whilst the melodic pattern, [[color]], changes in a different line 
