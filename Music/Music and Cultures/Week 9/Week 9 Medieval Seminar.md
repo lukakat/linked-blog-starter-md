@@ -5,3 +5,5 @@ number 3 is important in the [[Kyrie]] because of the father son and holy spirit
 kyrie eleison christe eleison kyrie eleison big sections 
 then 3 times in each of those 
 [[Pan-Isorhyhtm]]
+
+Comes from [[Discant Clausulae]]
