@@ -1,0 +1,1 @@
+rests in one part of the music and notes in the other alternating between voices to get 
