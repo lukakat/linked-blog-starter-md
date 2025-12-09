@@ -1,0 +1,1 @@
+Two voices have the same idea in imitation 

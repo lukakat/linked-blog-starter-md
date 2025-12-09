@@ -1,0 +1,1 @@
+melodic phrase passed around through all the other voices

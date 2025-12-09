@@ -1,0 +1,1 @@
+same as [[parody mass]]
