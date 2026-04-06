@@ -13,7 +13,7 @@ I was originally going to write more exploded drum parts that flowed through eac
 
 planets holst (mars)
 hand claps for flamenco music 
-brazilian bossa tom j'abeam?
+brazilian bossa tom jobim?
 steve riech - tehillim (psalms)
 music for prepared piano 
 stravinsky rite all
